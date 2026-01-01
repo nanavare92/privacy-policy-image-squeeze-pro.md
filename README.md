@@ -95,6 +95,6 @@ Any changes will be reflected with an updated “Last updated” date.
 
 If you have any questions or concerns about this Privacy Policy, you may contact us at:
 
-📧 Email: support.imagesqueezepro@gmail.com
+📧 Email: nanavare.mayuresh@gmail.com
 
 📱 App Name: Image Squeeze Pro
